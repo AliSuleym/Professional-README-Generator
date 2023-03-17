@@ -45,7 +45,6 @@
 
 
 
-https://user-images.githubusercontent.com/116298145/226019567-16392e05-0007-4b8c-825e-bff916c5bc26.mp4
 
 
 
